@@ -9,3 +9,9 @@ chayanid.ter@student.mhidol.ac.th
 
 ## My howmtown
 Chumporn, Thailand
+
+## My favorite activities
++ Playing games
++ Sleeping
++ Reading novels and cartoons
++ Watching korean and chinese series
