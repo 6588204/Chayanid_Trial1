@@ -7,5 +7,3 @@ Chayanid Termpahiboon
 ## Email
 chayanid.ter@student.mhidol.ac.th
 
-## My howmtown
-Chumporn, Thailand
