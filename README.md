@@ -15,3 +15,4 @@ Chumporn, Thailand
 + Sleeping
 + Reading novels and cartoons
 + Watching korean and chinese series
++ Watching Netflix
